@@ -1,4 +1,4 @@
 Sandria Y. Edoria
 
 # Olivia Rodrigo
-![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fhughmcintyre%2F2023%2F09%2F22%2Folivia-rodrigo-beats-one-of-dave-matthews-bands-billboard-records%2F&psig=AOvVaw39FgcGmx9m0zZotqTFwaxW&ust=1704981655643000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPCF7-T90oMDFQAAAAAdAAAAABAD)
+![Facade](https://imageio.forbes.com/specials-images/imageserve/650db0cba250624329a29150/Disney--Original-Film--Olivia-Rodrigo--Driving-Home-2-U--A-Sour-Film-----Los-Angeles/960x0.jpg?format=jpg&width=1440)
