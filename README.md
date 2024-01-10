@@ -16,7 +16,7 @@ In 2023, Rodrigo released her second studio album, Guts, supported by the single
 
 *Bizaardvark Theme Song*
 
-<span style="color:red"> **"Bizaardvark Theme Song**</span> is an original song performed by Olivia Rodrigo and Madison Hu, that is played during the title sequence, opening credits, closing credits, and in some instances at some point during the Disney Channel TV Show Bizaardvark.
+<span style="color:red"> **"Bizaardvark Theme Song"**</span> is an original song performed by Olivia Rodrigo and Madison Hu, that is played during the title sequence, opening credits, closing credits, and in some instances at some point during the Disney Channel TV Show Bizaardvark.
 
 ![Facade](https://cdn.theatlantic.com/thumbor/D9l1zJVGXhQPMkQ0DAxYE_1SgTw=/0x0:2999x1687/1952x1098/media/img/mt/2021/05/SOUR_FINAL/original.jpg)
 
