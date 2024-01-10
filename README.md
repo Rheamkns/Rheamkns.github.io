@@ -12,20 +12,19 @@ In 2023, Rodrigo released her second studio album, Guts, supported by the single
 
 # Albums
 
-![Facade](https://static.wikia.nocookie.net/oliviarodrigo/images/0/04/Bizaardvark.jpeg/revision/latest?cb=20210419231028)
+![Facade](https://cdn-igogl.nitrocdn.com/UcxzLcgHmOutkycbQErKDtHeFPtwBenI/assets/images/optimized/rev-f19dc02/wp-content/uploads/2021/07/liv-bizard.jpg)
 
 *Bizaardvark Theme Song*
 
 **"Bizaardvark Theme Song"** is an original song performed by Olivia Rodrigo and Madison Hu, that is played during the title sequence, opening credits, closing credits, and in some instances at some point during the Disney Channel TV Show Bizaardvark.
 
-![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fopen.spotify.com%2Falbum%2F6s84u2TUpR3wdUv4NgKA2j&psig=AOvVaw2-3wHjzWOyVHn0bDu1d1qe&ust=1704982599906000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCKC-9qSB04MDFQAAAAAdAAAAABAD)
+![Facade](https://cdn.theatlantic.com/thumbor/D9l1zJVGXhQPMkQ0DAxYE_1SgTw=/0x0:2999x1687/1952x1098/media/img/mt/2021/05/SOUR_FINAL/original.jpg)
 
 *Sour*
 
 **SOUR** is the debut studio album by American singer-songwriter Olivia Rodrigo. Under Geffen Records imprint, it was released in the US and Canada on May 21, 2021. The album was written by Rodrigo and producer Dan Nigro. Originally planned as an EP, Sour was expanded into a full-length album following the viral success of her debut single, "Drivers License".
 
-![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.newyorker.com%2Fculture%2Flistening-booth%2Folivia-rodrigos-star-making-guts&psig=AOvVaw1MX3wG4o-MnCCkhn6moIGF&ust=1704982632039000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCNCM_rOB04MDFQAAAAAdAAAAABAH)
-
+![Facade](https://media.newyorker.com/photos/64ff29c9b3510264829c1f98/master/w_1920,c_limit/Battan-GUTS-Review-Site.jpg)
 *Guts*
 
 **GUTS** is the second studio album by American singer-songwriter Olivia Rodrigo, released on September 8, 2023, through Geffen Records. It was written and recorded with Rodrigo working closely alongside Dan Nigro, the producer and multi-instrumentalist of her debut album Sour (2021). Inspired by the period of time immediately following Sour's success, Rodrigo conceived Guts hoping to reflect the process of maturity she experienced toward the end of her teenage years.
