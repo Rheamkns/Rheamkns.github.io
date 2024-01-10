@@ -12,8 +12,20 @@ In 2023, Rodrigo released her second studio album, Guts, supported by the single
 
 # Albums
 
-![Facade](https://static.wikia.nocookie.net/oliviarodrigo/images/b/b9/Bizaardvark_Theme_Song.jpg/revision/latest?cb=20210330181736)
+![Facade](https://static.wikia.nocookie.net/oliviarodrigo/images/0/04/Bizaardvark.jpeg/revision/latest?cb=20210419231028)
 
 *Bizaardvark Theme Song*
 
 **"Bizaardvark Theme Song"** is an original song performed by Olivia Rodrigo and Madison Hu, that is played during the title sequence, opening credits, closing credits, and in some instances at some point during the Disney Channel TV Show Bizaardvark.
+
+![Facade](https://en.wikipedia.org/wiki/File:Olivia_Rodrigo_-_SOUR.png)
+
+*Sour*
+
+**SOUR** is the debut studio album by American singer-songwriter Olivia Rodrigo. Under Geffen Records imprint, it was released in the US and Canada on May 21, 2021. The album was written by Rodrigo and producer Dan Nigro. Originally planned as an EP, Sour was expanded into a full-length album following the viral success of her debut single, "Drivers License".
+
+![Facade](https://en.wikipedia.org/wiki/File:Olivia_Rodrigo_-_Guts.png)
+
+*Guts*
+
+**GUTS** is the second studio album by American singer-songwriter Olivia Rodrigo, released on September 8, 2023, through Geffen Records. It was written and recorded with Rodrigo working closely alongside Dan Nigro, the producer and multi-instrumentalist of her debut album Sour (2021). Inspired by the period of time immediately following Sour's success, Rodrigo conceived Guts hoping to reflect the process of maturity she experienced toward the end of her teenage years.
