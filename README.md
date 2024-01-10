@@ -1,4 +1,3 @@
-# Rheamkns.github.io
 Sandria Y. Edoria
 
 # Olivia Rodrigo
