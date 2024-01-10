@@ -10,3 +10,10 @@ After her 2020 signing with Geffen Records, Rodrigo released her debut single, "
 
 In 2023, Rodrigo released her second studio album, Guts, supported by the singles "Vampire", "Bad Idea Right?", and "Get Him Back!", the former of which became her third number one single in several countries. Overall, Rodrigo has achieved three Billboard Hot 100 number-one singles, two Billboard 200 number-one albums, and five multi-platinum certifications by the Recording Industry Association of America (RIAA). Her other other accolades include an American Music Award, seven Billboard Music Awards, and three MTV Video Music Awards. Time named her the 2021 Entertainer of the Year and Billboard named her Woman of the Year in 2022.
 
+# Albums
+
+![Facade](https://static.wikia.nocookie.net/oliviarodrigo/images/b/b9/Bizaardvark_Theme_Song.jpg/revision/latest?cb=20210330181736)
+
+*Bizaardvark Theme Song*
+
+**"Bizaardvark Theme Song"** is an original song performed by Olivia Rodrigo and Madison Hu, that is played during the title sequence, opening credits, closing credits, and in some instances at some point during the Disney Channel TV Show Bizaardvark.
