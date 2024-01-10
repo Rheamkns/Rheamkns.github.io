@@ -28,3 +28,5 @@ In 2023, Rodrigo released her second studio album, Guts, supported by the single
 *Guts*
 
 **GUTS** is the second studio album by American singer-songwriter Olivia Rodrigo, released on September 8, 2023, through Geffen Records. It was written and recorded with Rodrigo working closely alongside Dan Nigro, the producer and multi-instrumentalist of her debut album Sour (2021). Inspired by the period of time immediately following Sour's success, Rodrigo conceived Guts hoping to reflect the process of maturity she experienced toward the end of her teenage years.
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/1McMsnEElThX1knmY4oliG?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
